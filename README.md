@@ -1,1 +1,1 @@
-getting the notifications of the page
+getting the notifications off the page
